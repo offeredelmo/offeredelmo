@@ -30,7 +30,7 @@ Backend and Mobile Developer
 
 ## Contact
 - 📧 Email: m3ndezdi4z17@gmail.com  
-- 💼 [LinkedIn](https://www.linkedin.com/in/mario-alfredo)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/mario-alfredo-mendez-diaz-9018a2275)  
 
 ---
 
