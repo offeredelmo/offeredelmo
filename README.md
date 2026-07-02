@@ -4,7 +4,7 @@
 Backend and Mobile Developer
 
 ## About Me
-- 🌱 I'm 22 years old.  
+- 🌱 I'm 24 years old.  
 - 📱 I enjoy mobile development.  
 - 🎓 Graduated from the Polytechnic University of Chiapas.
 
